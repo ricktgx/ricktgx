@@ -2,7 +2,7 @@
 ## 👀 Estou interessado em desenvolver jogos
 ### 🌱 Atualmente estou aprendendo 
 - 💞️ I’m looking to collaborate on ...  
-###### 📫 Como chegar ate mim 
+###### 📫 hahoha127gmail.com
 
 <!---
 ricktgx/ricktgx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
